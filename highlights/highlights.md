@@ -64,8 +64,7 @@
 
 33. "Here is the way to stop being average:
 
-Do something to the best of your ability.
-Then do a little bit more." - Todd Brison
+34. Do something to the best of your ability. Then do a little bit more." - Todd Brison
 
 35. "If you want to be a pro, you’re going to have to break this terrible amateur habit of looking at what people have without paying attention to what they did to get it. Chasing the results without understanding the process will lead to short-lived success, if not outright failure." - Jeff Goins
 
@@ -197,246 +196,246 @@ Then do a little bit more." - Todd Brison
 
 99. “Idleness is the biggest obstruction when it comes to the creative process.” - Unknown
 
-100.  “Be wiser than another man when you can be but don’t tell him you are.” - Dale Carnegie
+100. “Be wiser than another man when you can be but don’t tell him you are.” - Dale Carnegie
 
-101.  “Nature does not hurry, yet everything is accomplished.” - Lao Tzu
+101. “Nature does not hurry, yet everything is accomplished.” - Lao Tzu
 
-102.  “Love isn’t love unless you give it away.” - Alfred (NOLA Fudgery)
+102. “Love isn’t love unless you give it away.” - Alfred (NOLA Fudgery)
 
-103.  “The obvious is usually profoundly significant.” - Edward O. Wilson
+103. “The obvious is usually profoundly significant.” - Edward O. Wilson
 
-104.  “You’re making mistakes because you’re focusing on your target instead of your actions.” - Archery Proverb
+104. “You’re making mistakes because you’re focusing on your target instead of your actions.” - Archery Proverb
 
-105.  “Demons run when a good man goes to war.” - Steven Moffat
+105. “Demons run when a good man goes to war.” - Steven Moffat
 
-106.  “It’s not what you look at that matters, it’s what you see.” - Henry David Thoreau
+106. “It’s not what you look at that matters, it’s what you see.” - Henry David Thoreau
 
-107.  “Always take sides. Neutrality helps the oppressor, never the victim. Silence encourages the tormentor never the tormented.” - Elie Wiesel
+107. “Always take sides. Neutrality helps the oppressor, never the victim. Silence encourages the tormentor never the tormented.” - Elie Wiesel
 
-108.  “Jealousy is just love and hate at the same time.” - Aubrey D. Graham
+108. “Jealousy is just love and hate at the same time.” - Aubrey D. Graham
 
-109.  “Never attribute to malice that which is adequately explained by stupidity.” - Hanlon’s Razor
+109. “Never attribute to malice that which is adequately explained by stupidity.” - Hanlon’s Razor
 
-110.  “There is wisdom in context.” - John Eldridge
+110. “There is wisdom in context.” - John Eldridge
 
-111.  “Who cares what people say. They will talk anyway. Live your dream for in the future. You will regret not following your passion every day. Stay sincere. But prepare your heart to bear the consequences of your life decisions. Even if your decisions are wholesome be prepared for your heart to break. But keep going. For the breaking of the heart is what opens it to the light of God.” - Unknown
+111. “Who cares what people say. They will talk anyway. Live your dream for in the future. You will regret not following your passion every day. Stay sincere. But prepare your heart to bear the consequences of your life decisions. Even if your decisions are wholesome be prepared for your heart to break. But keep going. For the breaking of the heart is what opens it to the light of God.” - Unknown
 
-112.  “Forgiveness is setting a prisoner free, then discovering the prisoner was you.” - Old saying
+112. “Forgiveness is setting a prisoner free, then discovering the prisoner was you.” - Old saying
 
-113.  “Let people feel the weight of who you are, and let them deal with it.” - John Eldridge
+113. “Let people feel the weight of who you are, and let them deal with it.” - John Eldridge
 
-114.  “As a general rule of thumb: give away what you’ve been given.” - Taylor Waddell
+114. “As a general rule of thumb: give away what you’ve been given.” - Taylor Waddell
 
-115.  “If it is not a decision we need to make now, it’s not our decision. [it’s God’s]”
+115. “If it is not a decision we need to make now, it’s not our decision. [it’s God’s]”
 
-116.  “My scientist friends have come up with things like 'principles of uncertainty' and dark holes. They're willing to live inside imagined hypotheses and theories. But many religious folks insist on answers that are always true. We love closure, resolution and clarity, while thinking that we are people of 'faith'! How strange that the very word 'faith' has come to mean its exact opposite.” — Richard Rohr
+116. “My scientist friends have come up with things like 'principles of uncertainty' and dark holes. They're willing to live inside imagined hypotheses and theories. But many religious folks insist on answers that are always true. We love closure, resolution and clarity, while thinking that we are people of 'faith'! How strange that the very word 'faith' has come to mean its exact opposite.” — Richard Rohr
 
-117.  “Life is not a problem to be solved, but an adventure to be lived.” - Jon Eldridge
+117. “Life is not a problem to be solved, but an adventure to be lived.” - Jon Eldridge
 
-118.  “You will never be satisfied making a dollar when your purpose is making a difference.” - Pastor Joey
+118. “You will never be satisfied making a dollar when your purpose is making a difference.” - Pastor Joey
 
-119.  “People don’t care what you know until they know you how much you care.” - Theodore Roosevelt
+119. “People don’t care what you know until they know you how much you care.” - Theodore Roosevelt
 
-120.  “Time is all you have… and you may find one day that you have less than you think.” - Randy Pausch
+120. “Time is all you have… and you may find one day that you have less than you think.” - Randy Pausch
 
-121.  “I like this song, as it makes me think of rocks, and water, and the seashore, which are outside; and thinking of a thing is next best to being there.” - Margaret Atwood
+121. “I like this song, as it makes me think of rocks, and water, and the seashore, which are outside; and thinking of a thing is next best to being there.” - Margaret Atwood
 
-122.  “Whatever you believe you will seek proof of.” - Layne Beachley
+122. “Whatever you believe you will seek proof of.” - Layne Beachley
 
-123.  “If you can’t face it, you’re not finished with it.” - Marc D’aunoy
+123. “If you can’t face it, you’re not finished with it.” - Marc D’aunoy
 
-124.  “There are a thousand hacking at the branches of evil to one who is striking at the root.” - Henry David Thoreau
+124. “There are a thousand hacking at the branches of evil to one who is striking at the root.” - Henry David Thoreau
 
-125.  “Greed isn’t a comparison, it’s a heart posture.” - Taylor Waddell
+125. “Greed isn’t a comparison, it’s a heart posture.” - Taylor Waddell
 
-126.  “There is no honor in fearlessness. There is honor in knowing fear, yet still acting. This is courage.” - Taylor Waddell
+126. “There is no honor in fearlessness. There is honor in knowing fear, yet still acting. This is courage.” - Taylor Waddell
 
-127.  “...my self-love makes me think myself nice, but thinking myself nice is not why I love myself.” - C.S. Lewis, Mere Christianity
+127. “...my self-love makes me think myself nice, but thinking myself nice is not why I love myself.” - C.S. Lewis, Mere Christianity
 
-128.  “If self-discipline feels difficult, you’re doing it wrong.” - Mark Manson
+128. “If self-discipline feels difficult, you’re doing it wrong.” - Mark Manson
 
-129.  “Never encourage someone behind their back.” - Leo Tellez
+129. “Never encourage someone behind their back.” - Leo Tellez
 
-130.  “If you can’t lead by example, lead through repentance.” - Melissa D’aunoy
+130. “If you can’t lead by example, lead through repentance.” - Melissa D’aunoy
 
-131.  “You start asking for eyes to heal them, God will start healing you.” Jimmy Seilbert
+131. “You start asking for eyes to heal them, God will start healing you.” Jimmy Seilbert
 
-132.  “Your reaction is about you and their behavior is about them. Always.” - Marc D’aunoy
+132. “Your reaction is about you and their behavior is about them. Always.” - Marc D’aunoy
 
-133.  “Mighty is the hand that knows when to pick the pen, and when to pick the sword.” - Unknown
+133. “Mighty is the hand that knows when to pick the pen, and when to pick the sword.” - Unknown
 
-134.  “The child who is not embraced by the village will burn it down to feel its warmth.” - African Proverb
+134. “The child who is not embraced by the village will burn it down to feel its warmth.” - African Proverb
 
-135.  “A man who has not prepared his children for his own death, has failed as a father.” - Black Panther movie
+135. “A man who has not prepared his children for his own death, has failed as a father.” - Black Panther movie
 
-136.  “In this earthly life, you are only limited by lack of knowledge and lack of faith.” - Taylor Waddell
+136. “In this earthly life, you are only limited by lack of knowledge and lack of faith.” - Taylor Waddell
 
-137.  “Nobody in the Bible had a college degree and look what they did for the kingdom.” - Megan Waddell
+137. “Nobody in the Bible had a college degree and look what they did for the kingdom.” - Megan Waddell
 
-138.  STOP PRETENDING YOU DON’T KNOW WHAT YOU WANT TO DO
+138. STOP PRETENDING YOU DON’T KNOW WHAT YOU WANT TO DO
 
-139.  “Almost all acts of wisdom require courage in a sinful world.” - John Piper
+139. “Almost all acts of wisdom require courage in a sinful world.” - John Piper
 
-140.  “Without margins there is no focus.” - Unknown
+140. “Without margins there is no focus.” - Unknown
 
-141.  “Act promptly when your mind is ripe with insight.” - Look up (Ask Pastor John - Seven Lessons for Productivity)
+141. “Act promptly when your mind is ripe with insight.” - Look up (Ask Pastor John - Seven Lessons for Productivity)
 
-142.  “If you don’t design your own life plan, chances are you’ll fall into someone else’s plan. And guess what they have planned for you? Not much.” - Jim Rohn
+142. “If you don’t design your own life plan, chances are you’ll fall into someone else’s plan. And guess what they have planned for you? Not much.” - Jim Rohn
 
-143.  “Change is in inevitable, growth is optional.” - John Maxwell
+143. “Change is in inevitable, growth is optional.” - John Maxwell
 
-144.  “Organization is communication.” - Taylor Waddell
+144. “Organization is communication.” - Taylor Waddell
 
-145.  “Life has its thrills but life is not always a thrill.” - Jeanne Fleuriet
+145. “Life has its thrills but life is not always a thrill.” - Jeanne Fleuriet
 
-146.  “Love is the overflow of joy in GOD.” - John Piper (Desiring God / Chapter 3 / 1:05)
+146. “Love is the overflow of joy in GOD.” - John Piper (Desiring God / Chapter 3 / 1:05)
 
-147.  “Because a man is called by God does not mean he will be accepted by all people.” - Joe H. Cothen (Equipped for Good Work - pg.9)
+147. “Because a man is called by God does not mean he will be accepted by all people.” - Joe H. Cothen (Equipped for Good Work - pg.9)
 
-148.  “Discipline without direction is drudgery.” - Donald S. Whitney
+148. “Discipline without direction is drudgery.” - Donald S. Whitney
 
-149.  “He is no fool to give what he cannot keep to gain what he cannot loose.” - Jim Elliot
+149. “He is no fool to give what he cannot keep to gain what he cannot loose.” - Jim Elliot
 
-150.  “Thoughts disentangle themselves when they pass through the lips and fingertips.” - Dawson Trotman
+150. “Thoughts disentangle themselves when they pass through the lips and fingertips.” - Dawson Trotman
 
-151.  “Find ways to turn the routine into the holy.” - Donald S. Whitney (Spiritual Disciplines for the Christian Life)
+151. “Find ways to turn the routine into the holy.” - Donald S. Whitney (Spiritual Disciplines for the Christian Life)
 
-152.  “Your importance is not measured by how much you do but by how much of what you do matters” - Craig Groeschel (Leadership Podcast Ep. Four Tiers of Efficiency)
+152. “Your importance is not measured by how much you do but by how much of what you do matters” - Craig Groeschel (Leadership Podcast Ep. Four Tiers of Efficiency)
 
-153.  “The Spirit of the LORD doesn’t make nice guys, but dragon killers.” - Aaron @ Redeemer City Church (Sermon on David and Goliath)
+153. “The Spirit of the LORD doesn’t make nice guys, but dragon killers.” - Aaron @ Redeemer City Church (Sermon on David and Goliath)
 
-154.  “Our primary ‘job’ is to advance this kingdom of God. Our ‘profession’ is only a way to make a living.“ - Tom Stogner
+154. “Our primary ‘job’ is to advance this kingdom of God. Our ‘profession’ is only a way to make a living.“ - Tom Stogner
 
-155.  “There is more to life than increasing its speed.” - Ghandi
+155. “There is more to life than increasing its speed.” - Ghandi
 
-156.  “Confidence is the willingness to fail.” - Janssen Swent
+156. “Confidence is the willingness to fail.” - Janssen Swent
 
-157.  “Management is doing things right, leadership is doing the right thing.” - Peter Drucker
+157. “Management is doing things right, leadership is doing the right thing.” - Peter Drucker
 
-158.  “The purpose of the brain, is to enable the heart.” - The Holy Spirit
+158. “The purpose of the brain, is to enable the heart.” - The Holy Spirit
 
-159.  “Few men have the virtue to withstand the highest bidder” - Georgie Washingstone
+159. “Few men have the virtue to withstand the highest bidder” - Georgie Washingstone
 
-160.  “It is so cruel that we think we’re wasting time when we’re doing something that we love and that does not have any materialistic returns” - unknown to me
+160. “It is so cruel that we think we’re wasting time when we’re doing something that we love and that does not have any materialistic returns” - unknown to me
 
-161.  “All art is autobiographical” - Austin Kleon
+161. “All art is autobiographical” - Austin Kleon
 
-162.  “Wealth comes in many forms and financial is just one of them.” - Travis Cariaga (Cohort 49 of Thinkful Engineering Immersion)
+162. “Wealth comes in many forms and financial is just one of them.” - Travis Cariaga (Cohort 49 of Thinkful Engineering Immersion)
 
-163.  “The higher the risk, the more education it takes.” - Robert Kiyosaki
+163. “The higher the risk, the more education it takes.” - Robert Kiyosaki
 
-164.  “Seek His face more than His hand.” - unsure
+164. “Seek His face more than His hand.” - unsure
 
-165.  “It’s good to have money and the things that money can buy, but it's good, too, to check up once in a while and make sure that you haven't lost the things that money can't buy.” - George Horace Lorimer
+165. “It’s good to have money and the things that money can buy, but it's good, too, to check up once in a while and make sure that you haven't lost the things that money can't buy.” - George Horace Lorimer
 
-166.  “Intimacy is bred through conflict.” - Heard from Jeanne
+166. “Intimacy is bred through conflict.” - Heard from Jeanne
 
-167.  “Joy is supernatural.” - Kim B.
+167. “Joy is supernatural.” - Kim B.
 
-168.  “Take the next best step.” - unknown to me
+168. “Take the next best step.” - unknown to me
 
-169.  “Don’t let perfect get in the way of good.” - Josh Curry
+169. “Don’t let perfect get in the way of good.” - Josh Curry
 
-170.  “If you don’t have time for the important things, then starting saying no to the less important. If you aren’t maintaining your health, why are you saying yes to go into work early? Or to watching another episode?” - Taylor Waddell
+170. “If you don’t have time for the important things, then starting saying no to the less important. If you aren’t maintaining your health, why are you saying yes to go into work early? Or to watching another episode?” - Taylor Waddell
 
-171.  “The goal isn’t to get to marriage unscathed. The goal is to get to marriage holy.” - Jonah
+171. “The goal isn’t to get to marriage unscathed. The goal is to get to marriage holy.” - Jonah
 
-172.  “Work well done does good to the man who does it. It makes him a better man” - George S. Clason
+172. “Work well done does good to the man who does it. It makes him a better man” - George S. Clason
 
-173.  “In the west, we have been withdrawing from our tradition, religion, and even nation centered cultures. Partly to decrease the danger of group conflict. But we are increasingly falling prey to the desperation of meaninglessness, and that is no improvement at all.” - Jordan B. Peterson
+173. “In the west, we have been withdrawing from our tradition, religion, and even nation centered cultures. Partly to decrease the danger of group conflict. But we are increasingly falling prey to the desperation of meaninglessness, and that is no improvement at all.” - Jordan B. Peterson
 
-174.  “I bear the wounds of all the battles I avoided.” - Fernando Pessoa
+174. “I bear the wounds of all the battles I avoided.” - Fernando Pessoa
 
-175.  “If I’m betting on myself then I completely double down.” - J. Cole
+175. “If I’m betting on myself then I completely double down.” - J. Cole
 
-176.  “What we say to the person in front of our face will affect the people who are not.” - Stephen Demouy
+176. “What we say to the person in front of our face will affect the people who are not.” - Stephen Demouy
 
-177.  “If it bothers you after 24 hours, speak up within 48 hours.” - Unknown to me
+177. “If it bothers you after 24 hours, speak up within 48 hours.” - Unknown to me
 
-178.  “If you have to see a tree fall every time you pick up an ax, you will spend your life on little projects.” - John Piper
+178. “If you have to see a tree fall every time you pick up an ax, you will spend your life on little projects.” - John Piper
 
-179.  “You cannot put straight in others what is warped in yourself.” - Saint Athanasius (On the Incarnation)
+179. “You cannot put straight in others what is warped in yourself.” - Saint Athanasius (On the Incarnation)
 
-180.  “It doesn’t matter how much you have or how little you have. All that matters is how you manage it.” - Jeanne Fleuriet
+180. “It doesn’t matter how much you have or how little you have. All that matters is how you manage it.” - Jeanne Fleuriet
 
-181.  “If you rake you get leaves, if you dig you get diamonds.” - John Piper
+181. “If you rake you get leaves, if you dig you get diamonds.” - John Piper
 
-182.  “Practice makes permanent. Perfect practice makes perfect.” - Michael Strauch of UF Pro
+182. “Practice makes permanent. Perfect practice makes perfect.” - Michael Strauch of UF Pro
 
-183.  “Laws do not control morality. The majority opinion does not mean the majority is correct.” - Christian Watson (Founder of 1924.us)
+183. “Laws do not control morality. The majority opinion does not mean the majority is correct.” - Christian Watson (Founder of 1924.us)
 
-184.  “Every millisecond of your misery in the path of obedience is producing a peculiar glory you will get because of that.” - John Piper (Ask Pastor John: Your Suffering Is Working for You)
+184. “Every millisecond of your misery in the path of obedience is producing a peculiar glory you will get because of that.” - John Piper (Ask Pastor John: Your Suffering Is Working for You)
 
-185.  “Deep forgiveness offers the opportunity for deep love.” - Kevin (The Chapel Pastor)
+185. “Deep forgiveness offers the opportunity for deep love.” - Kevin (The Chapel Pastor)
 
-186.  “Stress plus recovery equals adaptation.” - Firas Zahabi
+186. “Stress plus recovery equals adaptation.” - Firas Zahabi
 
-187.  “Live the life you will one day wish you had.” - JR Vasser
+187. “Live the life you will one day wish you had.” - JR Vasser
 
-188.  “The Bible isn't [just] truth. It is the pre-conditions for the manifestation of truth- therefore the Bible is way more true than just true-“ - Jordan Peterson
+188. “The Bible isn't [just] truth. It is the pre-conditions for the manifestation of truth- therefore the Bible is way more true than just true-“ - Jordan Peterson
 
-189.  “There are three desires I find written so deeply into my heart I know now I can no longer disregard them without losing my soul...I search the pages of literature, I listen carefully to many, many men, and I am convinced these desires are universal, a clue into masculinity itself. They may be misplaced, forgotten, or misdirected, but in the heart of every man is a desperate desire for a battle to fight, an adventure to live, and a beauty to rescue.” - John Eldredge (Wild at Heart)
+189. “There are three desires I find written so deeply into my heart I know now I can no longer disregard them without losing my soul...I search the pages of literature, I listen carefully to many, many men, and I am convinced these desires are universal, a clue into masculinity itself. They may be misplaced, forgotten, or misdirected, but in the heart of every man is a desperate desire for a battle to fight, an adventure to live, and a beauty to rescue.” - John Eldredge (Wild at Heart)
 
-190.  “Sin will take you further than you want to go, keep you longer than you want to stay, and cost you more than you want to pay.” - Ravi Zacharias
+190. “Sin will take you further than you want to go, keep you longer than you want to stay, and cost you more than you want to pay.” - Ravi Zacharias
 
-191.  “We mistake if we think we were born for ourselves; no, it is our business to do good in this life, which is short and uncertain; we have but little time to be doing good, therefore we should redeem time. Satisfaction with Divine Providence, is having faith that all things work together for good to them that love him.” - Mathew Henry (on Eccl. 3:11-15)
+191. “We mistake if we think we were born for ourselves; no, it is our business to do good in this life, which is short and uncertain; we have but little time to be doing good, therefore we should redeem time. Satisfaction with Divine Providence, is having faith that all things work together for good to them that love him.” - Mathew Henry (on Eccl. 3:11-15)
 
-192.  “You can’t change the fruit without changing the root.” - Stephen R. Covey
+192. “You can’t change the fruit without changing the root.” - Stephen R. Covey
 
-193.  “Don't you know young man that from every town, and every village, and every little hamlet in England, wherever it may be, there is a road to London? So from every text in Scripture, there is a road to..Christ. And my dear brother, your business is when you get to a text, to say, 'Now what is the road to Christ?' I have never yet found a text that had not got a road to Christ in it, and if I ever do…any good unless there is a savor of Christ in it.” - Charles Spurgeon, sermon 242
+193. “Don't you know young man that from every town, and every village, and every little hamlet in England, wherever it may be, there is a road to London? So from every text in Scripture, there is a road to..Christ. And my dear brother, your business is when you get to a text, to say, 'Now what is the road to Christ?' I have never yet found a text that had not got a road to Christ in it, and if I ever do…any good unless there is a savor of Christ in it.” - Charles Spurgeon, sermon 242
 
-194.  “To the unreached I will evangelize, to the believer I will encourage” - Unknown to me
+194. “To the unreached I will evangelize, to the believer I will encourage” - Unknown to me
 
-195.  “Elisabeth Elliot is more precise when she explains that ‘freedom and discipline have come to be regarded as mutually exclusive, when in fact freedom is not at all the opposite, but the final reward, of discipline.’” - Donald S. Whitney
+195. “Elisabeth Elliot is more precise when she explains that ‘freedom and discipline have come to be regarded as mutually exclusive, when in fact freedom is not at all the opposite, but the final reward, of discipline.’” - Donald S. Whitney
 
-196.  ”Hope is only as strong as what you put it in.” - Kevin (The Chapel BR)
+196. ”Hope is only as strong as what you put it in.” - Kevin (The Chapel BR)
 
-197.  “If you don’t know where you’re going, every road will lead you there. And if you don’t know where you’re going, you don’t want to get there fast.” - Keith Seilhan (Veris Global CEO)
+197. “If you don’t know where you’re going, every road will lead you there. And if you don’t know where you’re going, you don’t want to get there fast.” - Keith Seilhan (Veris Global CEO)
 
-198.  “The true measure of a man’s success is found in his willingness to serve others.” - George Washington Carver
+198. “The true measure of a man’s success is found in his willingness to serve others.” - George Washington Carver
 
-199.  “Creativity is not a leading strategy. Use only when necessary.” - Tom Sachs
+199. “Creativity is not a leading strategy. Use only when necessary.” - Tom Sachs
 
-200.  “Unsanctioned grace allows sin to continue.” - Beau Bicford
+200. “Unsanctioned grace allows sin to continue.” - Beau Bicford
 
-201.  “It’s a lot easier to face your fears, when you know your purpose.” - Damar Hamlin (professional football player)
+201. “It’s a lot easier to face your fears, when you know your purpose.” - Damar Hamlin (professional football player)
 
-202.  “It would seem that Our Lord finds our desires not too strong, but too weak. We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy is offered us, like an ignorant child who wants to go on making mud pies in a slum because he cannot imagine what is meant by the offer of a holiday at the sea. We are far too easily pleased.” - C.S. Lewis, The Weight of Glory, and Other Addresses
+202. “It would seem that Our Lord finds our desires not too strong, but too weak. We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy is offered us, like an ignorant child who wants to go on making mud pies in a slum because he cannot imagine what is meant by the offer of a holiday at the sea. We are far too easily pleased.” - C.S. Lewis, The Weight of Glory, and Other Addresses
 
-203.  “Marriage doesn’t exist to make you happy.” - Marc D`Aunoy
+203. “Marriage doesn’t exist to make you happy.” - Marc D`Aunoy
 
-204.  “How tragic would it be if we labored so vigorously, only to realize at the end of our lives that we missed the one thing that matters and that our agendas became the obstacles to the greater mission.” - unknown to me
+204. “How tragic would it be if we labored so vigorously, only to realize at the end of our lives that we missed the one thing that matters and that our agendas became the obstacles to the greater mission.” - unknown to me
 
-205.  “Any job, big or small, do it well or not at all. Once a job, has begun, do not stop, until it’s done.” - Tom Sachs
+205. “Any job, big or small, do it well or not at all. Once a job, has begun, do not stop, until it’s done.” - Tom Sachs
 
-206.  “Perfection is not attainable, but if we chase perfection, we can achieve excellence.” - Vince Lombardi
+206. “Perfection is not attainable, but if we chase perfection, we can achieve excellence.” - Vince Lombardi
 
-207.  “What if long term benefits are actually reserved for long term commitments?” - David Platt
+207. “What if long term benefits are actually reserved for long term commitments?” - David Platt
 
-208.  “A man rejects passivity, accepts responsibility, and leads courageously expecting God’s greater good” - Kevin McKee
+208. “A man rejects passivity, accepts responsibility, and leads courageously expecting God’s greater good” - Kevin McKee
 
-209.  “Quas dederis, solas semprr habebis, opes. The riches you impart form the only wealth you will always retain. — Martial.” -from Mathew Henry commentary on Matthew 6:1-4
+209. “Quas dederis, solas semprr habebis, opes. The riches you impart form the only wealth you will always retain. — Martial.” -from Mathew Henry commentary on Matthew 6:1-4
 
-210.  “Contentment is not the fulfillment of what you want, but the realization of how much you already have.” - Anonymous
+210. “Contentment is not the fulfillment of what you want, but the realization of how much you already have.” - Anonymous
 
-211.  “The difference between screwing around and science is writing it down.” - Adam Savage
+211. “The difference between screwing around and science is writing it down.” - Adam Savage
 
-212.  “Time is a talent given us by God, and it is misspent and lost when not employed according to his design. If we have lost our time heretofore, we must double our diligence for the future. Of that time which thousands on a dying bed would gladly redeem at the price of the whole world, how little do men think, and to what trifles they daily sacrifice it!“ - Matthew Henry on Ephesians 5:15-21
+212. “Time is a talent given us by God, and it is misspent and lost when not employed according to his design. If we have lost our time heretofore, we must double our diligence for the future. Of that time which thousands on a dying bed would gladly redeem at the price of the whole world, how little do men think, and to what trifles they daily sacrifice it!“ - Matthew Henry on Ephesians 5:15-21
 
-213.  "The heaviest things in life are not iron and gold, but unmade decisions. The reason you are stressed is because you have decisions to make and you're not making them." - Alex Hormozi
+213. "The heaviest things in life are not iron and gold, but unmade decisions. The reason you are stressed is because you have decisions to make and you're not making them." - Alex Hormozi
 
-214.  “Discipline is doing what you hate to do, but doing it like you love it.” - Mike Tyson
+214. “Discipline is doing what you hate to do, but doing it like you love it.” - Mike Tyson
 
-215.  “It’s only God’s grace when we don’t deserve.” - Jon Odenwald
+215. “It’s only God’s grace when we don’t deserve.” - Jon Odenwald
 
-216.  “Everyone has a plan until they get punched in the face.” - Mike Tyson
+216. “Everyone has a plan until they get punched in the face.” - Mike Tyson
 
-217.  “Build goals around consistency instead of outcomes." - K Boges
+217. “Build goals around consistency instead of outcomes." - K Boges
 
-218.  “The only thing I can imagine is people like that don’t realize how serious life is. There are infinitely more pressing reasons to eat well, not waste time, live simply and interact well with others over looking good in front of others, especially those on the internet.” - Luke Smith [lukesmith.xyz/donts](https://lukesmith.xyz/donts/)
+218. “The only thing I can imagine is people like that don’t realize how serious life is. There are infinitely more pressing reasons to eat well, not waste time, live simply and interact well with others over looking good in front of others, especially those on the internet.” - Luke Smith [lukesmith.xyz/donts](https://lukesmith.xyz/donts/)
 
-219.  “Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed.” - G.K. Chesterton
+219. “Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed.” - G.K. Chesterton
 
-220.  “I would have written a shorter letter, but did not have the time.” - Blaise Pascal (kinda)
+220. “I would have written a shorter letter, but did not have the time.” - Blaise Pascal (kinda)
 
 221.
