@@ -438,4 +438,4 @@
 
 220. “I would have written a shorter letter, but did not have the time.” - Blaise Pascal (kinda)
 
-221.
+221. "Reading makes a full man, conversation a ready man, and writing an exact man." - Francis Bacon
