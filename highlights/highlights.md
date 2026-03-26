@@ -440,4 +440,4 @@
 
 221. "Reading makes a full man, conversation a ready man, and writing an exact man." - Francis Bacon
 
-222. 235. “Believe God’s Word and power more than you believe your own feelings and experiences. Your Rock is Christ, and it is not the Rock which ebbs and flows, but your sea.” - Samuel Rutherford
+222. "Believe God’s Word and power more than you believe your own feelings and experiences. Your Rock is Christ, and it is not the Rock which ebbs and flows, but your sea." - Samuel Rutherford
